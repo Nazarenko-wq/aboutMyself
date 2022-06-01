@@ -1,1 +1,1 @@
-# aboutMyself
+https://Nazarenko-wq.github.io/rsschool-cv/
